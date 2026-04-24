@@ -4,7 +4,34 @@
 
 ---
 
-## STEP 1: SONG CONCEPT
+## STEP 1: ARTIST PROFILE
+**"Who is this artist?"**
+
+Questions to answer:
+- Artist name + brand identity
+- Genre(s) — what kind of music?
+- Target audience — who listens?
+- Influences — who do they sound like?
+- Persona — what's their story?
+- Visual style — how do they look (faceless = silhouette, abstract, etc)
+
+This is the FOUNDATION. Everything flows from who the artist is.
+
+**BR CHIEF Example — Artist Profile:**
+> Artist: BR CHIEF
+> Genre: Southern Hip Hop, Trap, Club Banger
+> Origin: Texas-born, Baton Rouge Louisiana raised
+> Flow: Lil Wayne effortless + deep voice + grungy
+> Influences: Webbie, Lil Boosie, Juvenile, Master P
+> Persona: Bayou swagger, confident, street-wise, HBCU pride
+> Visual: Faceless silhouette with bayou/neon aesthetic
+> 
+> **BR CHIEF Example — TIGER CITY (Song Concept):**
+> "An anthem for Baton Rouge. Club banger that represents every hood in BR — from Scotland Hill to Eden Park. Grambling and Southern University pride. Tiger City represents unity and swagger."
+
+---
+
+## STEP 2: SONG CONCEPT
 **"What is this song about?"**
 
 Questions to answer:
@@ -13,12 +40,9 @@ Questions to answer:
 - What story are we telling?
 - Who is the target listener?
 
-**BR CHIEF Example — TIGER CITY:**
-> "An anthem for Baton Rouge. Club banger that represents every hood in BR — from Scotland Hill to Eden Park. Grambling and Southern University pride. Tiger City represents unity and swagger."
-
 ---
 
-## STEP 2: SONG STYLE
+## STEP 3: SONG STYLE
 **"How does it sound?"**
 
 Questions to answer:
@@ -39,7 +63,7 @@ Mood: Dark club at 2AM, aggressive but confident
 
 ---
 
-## STEP 3: WRITE LYRICS
+## STEP 4: WRITE LYRICS
 **"What are the words?"**
 
 Structure:
@@ -62,7 +86,7 @@ Grambling to the G, we the ones they fear
 
 ---
 
-## STEP 4: VISUALS & ANIMATION
+## STEP 5: VISUALS & ANIMATION
 **"What does it look like?"**
 
 For faceless artists:
@@ -82,7 +106,7 @@ Thumbnail: Tiger silhouette with crown, BR flag in background
 
 ---
 
-## STEP 5: PLATFORM DISTRIBUTION
+## STEP 6: PLATFORM DISTRIBUTION
 **"Where does it go?"**
 
 | Platform | Content Type | Goal |
@@ -107,12 +131,12 @@ Week 2: YouTube Shorts (lyric snippet)
 ## WORKFLOW SUMMARY
 
 ```
-[SONG CONCEPT] → [SONG STYLE] → [WRITE LYRICS] → [VISUALS/ANIMATION] → [DISTRIBUTE]
-     ↓                  ↓               ↓                  ↓                  ↓
-  BR CHIEF          TIGER CITY      TIGER CITY       TIGER CITY        YouTube
-  album plan         track spec      lyrics ready     cover art +       Spotify
-                                     (this file)      video ready      TikTok
-                                                     (pending AI)     IG Reel
+[ARTIST PROFILE] → [SONG CONCEPT] → [SONG STYLE] → [WRITE LYRICS] → [VISUALS/ANIMATION] → [DISTRIBUTE]
+      ↓                  ↓               ↓               ↓                  ↓                  ↓
+  BR CHIEF           TIGER CITY      TIGER CITY      TIGER CITY       TIGER CITY        YouTube
+  artist spec        track spec       style spec      lyrics ready     cover art +       Spotify
+  (this step)        (next step)                                       video ready       TikTok
+                                                                         (pending AI)     IG Reel
 ```
 
 ---
