@@ -62,13 +62,13 @@ This my Mary Jane...
 ### [VERSE 1] — 0:20-1:05
 *(Funk groove — smooth, unhurried)*
 
-She come through late at night when the stress is gettin' high
-She never judge my drama, she just help me feel alright
-Mary Jane, my sweet thing, she the love of my life
-I roll her up so perfect, she a beautiful wife
+She come through late at night when the stress is gettin' real
+She never judge my drama, she just lift the way I feel
+Mary Jane, my Doja lady, she the loud I need
+Every joint I spark up, got me higher than the ceiling
 
-I spark that flame and the world gettin' calm
-Every hit that I take, she keep me warm
+I pull that resin, watch the oil drip slow
+My indica got me vibin', feelin' good in every way I go
 She my go-to when the anxiety attack
 She the one that bring me back
 
@@ -76,6 +76,11 @@ I'm servin' up these lyrics with a Lazy wrap flow
 Every blunt I roll, it's a perfect intro
 She don't talk too much, but she speak to my soul
 When the smoke clear, I want her back in my bowl
+
+Weed so loud, it be stinkin' up the whole block
+My homie in the cut say "bro you need to lock it up"
+But fa sho I'm losin', never losin' to the stress
+My Mary on my lap and I sit there and I'm blessed
 
 ---
 
@@ -102,15 +107,17 @@ She the perfect partner, never need no karma
 We from the bayou where we roll it slow and true
 Every puff is sacred, man, she pull me through
 
-I met her at a party, first time I felt the breeze
-Now she's in my daily routine, she put my mind at ease
+I met her at a session, first time I hit the haze
+Now she my number one, I put her up in a special place
 The world get loud but when I'm with my Jane
-I close my eyes and all the noise go sane
+I close my eyes and all the static turn to sane
 
+She the loudest in the room, she the purp in my stash
+My sativa in the morning, indica when I'm past
+Every dab I take, she send me to the moon
+She stackin' up my problems, send 'em leavin' soon
 She a flower in my garden, she a gift from the high
 Every session with my Mary, I'm ascended to the sky
-I don't need no other love, she fulfill my every need
-The kind of love that plant and grow from the work of the seed
 
 ---
 
@@ -152,11 +159,15 @@ Now I travel state to state, but she travel right with me
 In the car, in the hotel, in the room I rent for free
 She the only one that never ask for money or for more
 She the one I come home to when I'm open up the door
+She my endo, she my loud, she my real deal stack
+My sticky icky in the jar, I'm never runnin' lack
 
 I pour a drink and spark the J and we kick it by the bayou
 The smoke curl through the night air and the worries float on through
 She my Queen, she my everything, the love that set me free
 Mary Jane 2.0 — this the new era of the O.G.
+Real talk, fa sho, this the end of the game
+I'm stackin' up my Mary, she my everlastin' flame
 
 ---
 
