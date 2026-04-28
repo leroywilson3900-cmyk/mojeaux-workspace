@@ -8,9 +8,12 @@
 **Duration:** 3:30-4:00
 **Vibe:** Classic funk, celebratory — Rick James "Mary Jane" energy, WEED IS THE WOMAN
 **Mood:** Laid back, celebratory, love song to marijuana, funk groove
-**Key Feature:** Metaphor throughout — Mary Jane is the weed AND the woman. Making love TO THE WEED.
+**Key Feature:** METAPHOR throughout — Mary Jane is the weed AND the woman. Every punchline hits hard.
 
-**The whole song is a metaphor. Every "she/her" reference = the weed. Every "Mary Jane" = marijuana. But framed as a love/sex song. Classic double entendre.**
+**PUNCHLINES & SLANG REQUIREMENTS:**
+- Dense wordplay, metaphors throughout
+- Every line should have something clever
+- Southern/Louisiana slang + weed culture terminology
 
 ---
 
@@ -19,26 +22,11 @@
 ```
 SLOW FUNK GROOVE — 70-80 BPM, smooth and celebratory.
 Funky wah-guitar loop, deep bass line, classic funk drum pattern.
-Think: Rick James "Mary Jane" meets Slightly Stoopid "1849" energy.
+Think: Rick James "Mary Jane" meets Slightly Stoopid energy.
 Analog warmth, no digital harshness.
 Brass — muted trumpet or sax for the hook.
 NO trap. NO 808s. NO techno. Pure funk instrumentation.
-Louisiana bayou soul meets California funk.
-Confident, fun, celebratory — this is the love song to the love of my life.
-```
-
----
-
-## 🎤 LYRICS PROMPT (Vocal)
-
-```
-METAPHOR THROUGHOUT: Mary Jane is marijuana framed as a woman.
-Every "she/her" reference = the weed. Every "Mary Jane" = marijuana.
-Classic double entendre — sounds like a love song, IS a love song to weed.
-BR CHIEF's love affair with Mary Jane — Louisiana style.
-Smooth delivery, D'Angelo-style delivery, confident but relaxed.
-Weed culture celebration, not excess. Appreciating the herb.
-Louisiana bayou funk energy meets classic funk.
+Punchline-heavy rap delivery — intricate rhymes, dense wordplay.
 ```
 
 ---
@@ -53,126 +41,141 @@ Louisiana bayou funk energy meets classic funk.
 *(BR CHIEF, smooth, confident)*
 
 Yeah... uh huh...
-I got a love... I got a love that I can't explain...
-She the only one... that never lets me down...
+I got a love that don't come with a warning
+She the only one that keep me on my grind for the morning
 This my Mary Jane...
 
 ---
 
 ### [VERSE 1] — 0:20-1:05
-*(Funk groove — smooth, unhurried)*
+*(Funk groove — punchline-heavy)*
 
-She come through late at night when the stress is gettin' real
-She never judge my drama, she just lift the way I feel
-Mary Jane, my Doja lady, she the loud I need
-Every joint I spark up, got me higher than the ceiling
+She come through late at night when the stress is stackin' high
+She never judge my chaos, she just kiss it with her sigh
+Mary Jane, my Doja lady, she the loud I never hide
+Every joint I spark up, she the cloud I ride
 
-I pull that resin, watch the oil drip slow
-My indica got me vibin', feelin' good in every way I go
-She my go-to when the anxiety attack
-She the one that bring me back
+I pull that resin like a jeweler pullin' bands
+My indica got me vibratin' like I'm holdin' grandma's hands
+She my go-to when the anxiety come knockin' at my door
+She the one that mop the floor up when the worry hit the floor
 
 I'm servin' up these lyrics with a Lazy wrap flow
-Every blunt I roll, it's a perfect intro
-She don't talk too much, but she speak to my soul
-When the smoke clear, I want her back in my bowl
+Every blunt I spark is like a kiss I owe
+She don't talk too much but she speak in every hue
+She the Pantone shade of purple when the purple hit the blue
 
-Weed so loud, it be stinkin' up the whole block
-My homie in the cut say "bro you need to lock it up"
-But fa sho I'm losin', never losin' to the stress
-My Mary on my lap and I sit there and I'm blessed
+Weed so loud, it be stinkin' up the whole zip code
+My homie in the cut say "bro, you need to zip that thing and lock it up"
+But I'ma blaze it anyway, never worry 'bout the cost
+My Mary on my lap, she the one I never lost
+
+And every time I spark that Mary, I'ma see her nice profile
+She don't need no Valentine, she my love on every dial
+We the pair that don't compare, we the toast with all the butter
+She the realest, she the illest, and she never gonna mutter
 
 ---
 
 ### [HOOK] — 1:05-1:40
-*(Funk full — guitar + bass groove)*
+*(Funk full — anthem)*
 
 **Mary Jane, you're the love of my life**
-**I light you up, you ease my strife**
-**Every hit, every puff, every moment with you**
-**That's my kind of love, the only love I knew**
+**I spark you up, you cut me like a knife**
+**Every hit, every puff, every second with you**
+**That's my kind of love, I don't need no substitute**
 
-**Mary Jane, you my sweetest high**
-**Roll you up and watch the stress fly**
-**In the morning when I wake, you be there for me**
-**That's the kind of love, that's the kind of love that set me free**
+**Mary Jane, you my甜心 (sweet heart)**
+**Roll you up, we never really apart**
+**In the mornin' when I wake, you be there in the drawer**
+**That's the kind of love that I been waitin' for**
 
 ---
 
 ### [VERSE 2] — 1:40-2:20
-*(Smooth funk, slightly faster flow)*
-
-She don't gossip, she don't lie, she don't cause no drama
-She the perfect partner, never need no karma
-We from the bayou where we roll it slow and true
-Every puff is sacred, man, she pull me through
-
-I met her at a session, first time I hit the haze
-Now she my number one, I put her up in a special place
-The world get loud but when I'm with my Jane
-I close my eyes and all the static turn to sane
+*(More punchlines, intricate wordplay)*
 
 She the loudest in the room, she the purp in my stash
-My sativa in the morning, indica when I'm past
+My sativa in the A.M., indica when I'm past
 Every dab I take, she send me to the moon
-She stackin' up my problems, send 'em leavin' soon
-She a flower in my garden, she a gift from the high
-Every session with my Mary, I'm ascended to the sky
+She stack my problems up like books and bookin' 'em a room
+
+She a flower and I'm pollen, we the garden of the high
+Every session we connect, watch the worry wave goodbye
+I don't need a therapist when I got my Mary Jane
+She the only one that know exactly how to ease the pain
+
+I'ma call her when I'm stressed, she the line that I don't hate
+She the only conversation that don't make me wanna wait
+We talk for hours, not a single word — pure vibes
+She the only thing in life that keep me satisfied
+
+My Mary don't gossip, she don't lie, she don't play the game
+She the perfect one for me, she don't need to explain
+From the bayou to the city, she be flowin' through my veins
+And I swear I love her more every time that I inhale
 
 ---
 
 ### [HOOK REPEAT] — 2:20-2:50
-*(Funk full — everything in)*
+*(Funk full)*
 
 **Mary Jane, you're the love of my life**
-**I light you up, you ease my strife**
-**Every hit, every puff, every moment with you**
-**That's my kind of love, the only love I knew**
+**I spark you up, you cut me like a knife**
+**Every hit, every puff, every second with you**
+**That's my kind of love, I don't need no substitute**
 
 **Mary Jane, you my sweetest high**
-**Roll you up and watch the stress fly**
-**In the morning when I wake, you be there for me**
-**That's the kind of love, that's the kind of love that set me free**
+**Roll you up, we never really apart**
+**In the mornin' when I wake, you be there in the drawer**
+**That's the kind of love that I been waitin' for**
 
 ---
 
 ### [BRIDGE] — 2:50-3:10
-*(Groove slows — sparse funk, just guitar and bass)*
+*(Sparse funk — reflective)*
 
-*(BR CHIEF, spoken, reflective)*
+*(BR CHIEF, spoken)*
 
 You know... people don't understand...
-When I say Mary Jane... I'm not talkin' about a woman...
-I'm talkin' about this feeling... this peace...
-This moment when everything... just... makes sense...
-This my therapy... this my sanctuary...
-This my Mary Jane...
+They think I'm talkin' 'bout a woman when I say Mary Jane...
+Nah...
+I'm talkin' 'bout this feeling... this peace...
+This moment when the world finally... makes sense...
+She my therapist... my sanctuary...
+My Mary Jane...
 
 *(Funk solo fills 8 bars)*
 
 ---
 
 ### [VERSE 3 / CLOSING] — 3:10-3:45
-*(Groove returns — final verse, most soulful)*
+*(Punchlines on punchlines)*
 
-Now I travel state to state, but she travel right with me
-In the car, in the hotel, in the room I rent for free
-She the only one that never ask for money or for more
-She the one I come home to when I'm open up the door
+Now I travel coast to coast, but she travel right with me
+In the car, on the jet, in the room that I rent for free
+She the only one that never ask for money or for time
+She the only investment that return me peace of mind
+
 She my endo, she my loud, she my real deal stack
 My sticky icky in the jar, I'm never runnin' lack
+I pour a drink and spark the J and we vibin' by the bayou
+The smoke floatin' through the air and the stress just float away
 
-I pour a drink and spark the J and we kick it by the bayou
-The smoke curl through the night air and the worries float on through
-She my Queen, she my everything, the love that set me free
-Mary Jane 2.0 — this the new era of the O.G.
-Real talk, fa sho, this the end of the game
-I'm stackin' up my Mary, she my everlastin' flame
+She my Queen and she my King, she my every above
+She the only kind of love that I trust above the drug
+She don't break my heart, she don't never leave me first
+Every time I lose myself, she the one that bring me back
+
+So when the world get heavy and the pressure call my name
+I'ma find my Mary Jane and I'ma spark it once again
+'Cause she the only one that know the real me underneath
+Mary Jane 2.0 — this that O.G. underneath
 
 ---
 
 ### [OUTRO] — 3:45-4:00
-*(Funk groove rides out — guitar fades, bass last to go)*
+*(Funk rides out)*
 
 *(BR CHIEF, whisper)*
 
@@ -190,12 +193,11 @@ Forever and ever...
 ```
 SLOW FUNK GROOVE — 70-80 BPM, smooth and celebratory.
 Funky wah-guitar loop, deep bass line, classic funk drum pattern.
-Think: Rick James "Mary Jane" meets Slightly Stoopid "1849" energy.
+Think: Rick James "Mary Jane" meets Slightly Stoopid energy.
 Analog warmth, no digital harshness.
 Brass — muted trumpet or sax for the hook.
 NO trap. NO 808s. NO techno. Pure funk instrumentation.
-Louisiana bayou soul meets California funk.
-Confident, fun, celebratory.
+Punchline-heavy rap delivery — intricate rhymes, dense wordplay.
 ```
 
 ---
@@ -204,76 +206,97 @@ Confident, fun, celebratory.
 ```
 [Intro]
 Yeah... uh huh...
-I got a love... I got a love that I can't explain...
-She the only one... that never lets me down...
+I got a love that don't come with a warning
+She the only one that keep me on my grind for the morning
 This my Mary Jane...
 
 [Verse 1]
-She come through late at night when the stress is gettin' high
-She never judge my drama, she just help me feel alright
-Mary Jane, my sweet thing, she the love of my life
-I roll her up so perfect, she a beautiful wife
-I spark that flame and the world gettin' calm
-Every hit that I take, she keep me warm
-She my go-to when the anxiety attack
-She the one that bring me back
+She come through late at night when the stress is stackin' high
+She never judge my chaos, she just kiss it with her sigh
+Mary Jane, my Doja lady, she the loud I never hide
+Every joint I spark up, she the cloud I ride
+I pull that resin like a jeweler pullin' bands
+My indica got me vibratin' like I'm holdin' grandma's hands
+She my go-to when the anxiety come knockin' at my door
+She the one that mop the floor up when the worry hit the floor
 I'm servin' up these lyrics with a Lazy wrap flow
-Every blunt I roll, it's a perfect intro
-She don't talk too much, but she speak to my soul
-When the smoke clear, I want her back in my bowl
+Every blunt I spark is like a kiss I owe
+She don't talk too much but she speak in every hue
+She the Pantone shade of purple when the purple hit the blue
+Weed so loud, it be stinkin' up the whole zip code
+My homie in the cut say "bro, you need to zip that thing and lock it up"
+But I'ma blaze it anyway, never worry 'bout the cost
+My Mary on my lap, she the one I never lost
+And every time I spark that Mary, I'ma see her nice profile
+She don't need no Valentine, she my love on every dial
+We the pair that don't compare, we the toast with all the butter
+She the realest, she the illest, and she never gonna mutter
 
 [Hook]
 Mary Jane, you're the love of my life
-I light you up, you ease my strife
-Every hit, every puff, every moment with you
-That's my kind of love, the only love I knew
+I spark you up, you cut me like a knife
+Every hit, every puff, every second with you
+That's my kind of love, I don't need no substitute
 Mary Jane, you my sweetest high
-Roll you up and watch the stress fly
-In the morning when I wake, you be there for me
-That's the kind of love, that's the kind of love that set me free
+Roll you up, we never really apart
+In the mornin' when I wake, you be there in the drawer
+That's the kind of love that I been waitin' for
 
 [Verse 2]
-She don't gossip, she don't lie, she don't cause no drama
-She the perfect partner, never need no karma
-We from the bayou where we roll it slow and true
-Every puff is sacred, man, she pull me through
-I met her at a party, first time I felt the breeze
-Now she's in my daily routine, she put my mind at ease
-The world get loud but when I'm with my Jane
-I close my eyes and all the noise go sane
-She a flower in my garden, she a gift from the high
-Every session with my Mary, I'm ascended to the sky
-I don't need no other love, she fulfill my every need
-The kind of love that plant and grow from the work of the seed
+She the loudest in the room, she the purp in my stash
+My sativa in the A.M., indica when I'm past
+Every dab I take, she send me to the moon
+She stack my problems up like books and bookin' 'em a room
+She a flower and I'm pollen, we the garden of the high
+Every session we connect, watch the worry wave goodbye
+I don't need a therapist when I got my Mary Jane
+She the only one that know exactly how to ease the pain
+I'ma call her when I'm stressed, she the line that I don't hate
+She the only conversation that don't make me wanna wait
+We talk for hours, not a single word — pure vibes
+She the only thing in life that keep me satisfied
+My Mary don't gossip, she don't lie, she don't play the game
+She the perfect one for me, she don't need to explain
+From the bayou to the city, she be flowin' through my veins
+And I swear I love her more every time that I inhale
 
 [Hook Repeat]
 Mary Jane, you're the love of my life
-I light you up, you ease my strife
-Every hit, every puff, every moment with you
-That's my kind of love, the only love I knew
+I spark you up, you cut me like a knife
+Every hit, every puff, every second with you
+That's my kind of love, I don't need no substitute
 Mary Jane, you my sweetest high
-Roll you up and watch the stress fly
-In the morning when I wake, you be there for me
-That's the kind of love, that's the kind of love that set me free
+Roll you up, we never really apart
+In the mornin' when I wake, you be there in the drawer
+That's the kind of love that I been waitin' for
 
 [Bridge]
-(Spoken, reflective)
+(Spoken)
 You know... people don't understand...
-When I say Mary Jane... I'm not talkin' about a woman...
-I'm talkin' about this feeling... this peace...
-This moment when everything... just... makes sense...
-This my therapy... this my sanctuary...
-This my Mary Jane...
+They think I'm talkin' 'bout a woman when I say Mary Jane...
+Nah...
+I'm talkin' 'bout this feeling... this peace...
+This moment when the world finally... makes sense...
+She my therapist... my sanctuary...
+My Mary Jane...
 
 [Verse 3]
-Now I travel state to state, but she travel right with me
-In the car, in the hotel, in the room I rent for free
-She the only one that never ask for money or for more
-She the one I come home to when I'm open up the door
-I pour a drink and spark the J and we kick it by the bayou
-The smoke curl through the night air and the worries float on through
-She my Queen, she my everything, the love that set me free
-Mary Jane 2.0 — this the new era of the O.G.
+Now I travel coast to coast, but she travel right with me
+In the car, on the jet, in the room that I rent for free
+She the only one that never ask for money or for time
+She the only investment that return me peace of mind
+She my endo, she my loud, she my real deal stack
+My sticky icky in the jar, I'm never runnin' lack
+I pour a drink and spark the J and we vibin' by the bayou
+The smoke floatin' through the air and the stress just float away
+She my Queen and she my King, she my every above
+She the only kind of love that I trust above the drug
+She don't break my heart, she don't never leave me first
+Every time I lose myself, she the one that bring me back
+So when the world get heavy and the pressure call my name
+I'ma find my Mary Jane and I'ma spark it once again
+'Cause she the only one that know the real me underneath
+Mary Jane 2.0 — this that O.G. underneath
 
 [Outro]
 Yeah... that's my Mary Jane...
@@ -282,17 +305,21 @@ Forever and ever...
 
 ---
 
-## 🎤 KEY LINES
+## 🎤 KEY PUNCHLINES
 
-**"Mary Jane, my sweet thing, she the love of my life"**
+**"I pull that resin like a jeweler pullin' bands"**
 
-**"She the only one that never ask for money or for more"**
+**"She the Pantone shade of purple when the purple hit the blue"**
 
-**"She my therapy, my sanctuary, my Mary Jane"**
+**"We the pair that don't compare, we the toast with all the butter"**
 
-**"Mary Jane 2.0 — this the new era of the O.G."**
+**"She stack my problems up like books and bookin' 'em a room"**
+
+**"She the only conversation that don't make me wanna wait"**
+
+**"The only investment that return me peace of mind"**
 
 ---
 
-*Tribute to Rick James — Funky, celebratory, weed love song*
-*BR CHIEF: Louisiana funk meets the classic Mary Jane metaphor*
+*Tribute to Rick James — Funky, punchline-heavy, weed metaphor*
+*BR CHIEF: Dense wordplay, intricate rhymes, every line hits*
