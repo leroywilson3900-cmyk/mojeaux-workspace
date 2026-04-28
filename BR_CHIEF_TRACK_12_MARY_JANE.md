@@ -20,12 +20,14 @@
 ## 🎵 STYLE PROMPT (Instrumental)
 
 ```
-SLOW FUNK GROOVE — 70-80 BPM, smooth and celebratory.
-Funky wah-guitar loop, deep bass line, classic funk drum pattern.
-Think: Rick James "Mary Jane" meets Slightly Stoopid energy.
-Analog warmth, no digital harshness.
-Brass — muted trumpet or sax for the hook.
-NO trap. NO 808s. NO techno. Pure funk instrumentation.
+CHOPPED AND SCREWED HOUSTON FUNK — 70-80 BPM, slow and laid back.
+Deep 808 bass that hits like a heartbeat, crisp hi-hats with triplets.
+Chopped and screwed effect — slowed down vocals, reverb soaked.
+Funky live instrumentation — wah-guitar, synth pads, muted trumpet.
+Think: DJ Screw meets Rick James "Mary Jane" meets Trae Tha Truth.
+PURGATORY VIBES — cruising at night, windows down, smoke floatin'.
+Deep pocket funk groove you can ride to for hours.
+Brass stabs subtle in the background, not overpowering.
 Punchline-heavy rap delivery — intricate rhymes, dense wordplay.
 ```
 
@@ -191,13 +193,14 @@ Forever and ever...
 
 **STYLE:**
 ```
-SLOW FUNK GROOVE — 70-80 BPM, smooth and celebratory.
-Funky wah-guitar loop, deep bass line, classic funk drum pattern.
-Think: Rick James "Mary Jane" meets Slightly Stoopid energy.
-Analog warmth, no digital harshness.
-Brass — muted trumpet or sax for the hook.
-NO trap. NO 808s. NO techno. Pure funk instrumentation.
-Punchline-heavy rap delivery — intricate rhymes, dense wordplay.
+CHOPPED AND SCREWED HOUSTON FUNK — 70-80 BPM, slow and laid back.
+Deep 808 bass that hits like a heartbeat, crisp hi-hats with triplets.
+Chopped and screwed effect — slowed down vocals, reverb soaked.
+Funky live instrumentation — wah-guitar, synth pads, muted trumpet.
+Think: DJ Screw meets Rick James "Mary Jane" meets Trae Tha Truth.
+PURGATORY VIBES — cruising at night, windows down, smoke floatin'.
+Deep pocket funk groove you can ride to for hours.
+Brass stabs subtle in the background, not overpowering.
 ```
 
 ---
