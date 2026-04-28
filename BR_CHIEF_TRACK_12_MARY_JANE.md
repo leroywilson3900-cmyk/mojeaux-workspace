@@ -1,30 +1,30 @@
 # 🎤 BR CHIEF — MARY JANE 2.0
-## "Call Her Up"
+## "The Love of My Life"
 
 ---
 
 ## 📋 SONG SPEC
 
 **Duration:** 3:30-4:00
-**Vibe:** Classic funk, sensual, smooth groove — Rick James "Mary Jane" energy
-**Mood:** Late night, slow dancing, laid back funk
-**Key Feature:** Funk guitar + bass groove, smooth vocals, no trap — pure soul
+**Vibe:** Classic funk, celebratory — Rick James "Mary Jane" energy, WEED IS THE WOMAN
+**Mood:** Laid back, celebratory, love song to marijuana, funk groove
+**Key Feature:** Metaphor throughout — Mary Jane is the weed AND the woman. Making love TO THE WEED.
 
-**This is BR CHIEF going FULL FUNK SOUL. Think D'Angelo "Brown Sugar" meets Rick James. Slow, sexy, funky. Making love is the theme — sensual but classy.**
+**The whole song is a metaphor. Every "she/her" reference = the weed. Every "Mary Jane" = marijuana. But framed as a love/sex song. Classic double entendre.**
 
 ---
 
 ## 🎵 STYLE PROMPT (Instrumental)
 
 ```
-SLOW FUNK GROOVE — 70-80 BPM, smooth and laid back.
+SLOW FUNK GROOVE — 70-80 BPM, smooth and celebratory.
 Funky wah-guitar loop, deep bass line, classic funk drum pattern.
-Think: Rick James "Mary Jane" meets D'Angelo "Brown Sugar" energy.
+Think: Rick James "Mary Jane" meets Slightly Stoopid "1849" energy.
 Analog warmth, no digital harshness.
-Brass optional — muted trumpet or sax for the hook.
+Brass — muted trumpet or sax for the hook.
 NO trap. NO 808s. NO techno. Pure funk instrumentation.
-Rhythm guitar and bass carry the track.
-Smooth, sensual,不失绅士风度.
+Louisiana bayou soul meets California funk.
+Confident, fun, celebratory — this is the love song to the love of my life.
 ```
 
 ---
@@ -32,12 +32,13 @@ Smooth, sensual,不失绅士风度.
 ## 🎤 LYRICS PROMPT (Vocal)
 
 ```
-Sensual slow funk — BR CHIEF on the smooth tip.
-Theme: Making love, the chemistry between two people, Mary Jane as the woman AND the vibe.
-Flow: Smooth, laid back, D'Angelo/D'Angelo "Brown Sugar" delivery.
-No trap aggression — this is bedroom funk.
-Confident but romantic, not raunchy.
-Louisiana bayou soul meets classic funk.
+METAPHOR THROUGHOUT: Mary Jane is marijuana framed as a woman.
+Every "she/her" reference = the weed. Every "Mary Jane" = marijuana.
+Classic double entendre — sounds like a love song, IS a love song to weed.
+BR CHIEF's love affair with Mary Jane — Louisiana style.
+Smooth delivery, D'Angelo-style delivery, confident but relaxed.
+Weed culture celebration, not excess. Appreciating the herb.
+Louisiana bayou funk energy meets classic funk.
 ```
 
 ---
@@ -47,118 +48,115 @@ Louisiana bayou soul meets classic funk.
 ---
 
 ### [INTRO] — 0:00-0:20
-*(Funk guitar and bass groove in — sparse, seductive)*
+*(Funk guitar and bass groove in — relaxed, seductive)*
 
-*(BR CHIEF, smooth, whispered)*
+*(BR CHIEF, smooth, confident)*
 
 Yeah... uh huh...
-You know what time it is...
-Take it slow...
+I got a love... I got a love that I can't explain...
+She the only one... that never lets me down...
+This my Mary Jane...
 
 ---
 
 ### [VERSE 1] — 0:20-1:05
-*(Funk groove builds — smooth, unhurried)*
+*(Funk groove — smooth, unhurried)*
 
-She walk in the room and the temperature rise
-One look in her eyes and I'm hypnotized
-Mary Jane, that's her name, she ain't need introduction
-Got me twisted like a rope in the function
+She come through late at night when the stress is gettin' high
+She never judge my drama, she just help me feel alright
+Mary Jane, my sweet thing, she the love of my life
+I roll her up so perfect, she a beautiful wife
 
-She move to the beat like she made of water
-Every step that she take got me runnin' after
-And the way she smile, got me losin' my mind
-One more dance and I'm hers, she got me signs
+I spark that flame and the world gettin' calm
+Every hit that I take, she keep me warm
+She my go-to when the anxiety attack
+She the one that bring me back
 
-I'm servin' the funk, she servin' the heat
-Two grown folks in the night, doin' what comes sweet
-Don't need an introduction, don't need a rehearsed line
-Just a funk groove and a little more time
+I'm servin' up these lyrics with a Lazy wrap flow
+Every blunt I roll, it's a perfect intro
+She don't talk too much, but she speak to my soul
+When the smoke clear, I want her back in my bowl
 
 ---
 
 ### [HOOK] — 1:05-1:40
 *(Funk full — guitar + bass groove)*
 
-**Mary Jane, call her up tonight**
-**We gon' do it right, do it right**
-**Light the candle, kill the light**
-**We gon' feel alright, feel alright**
+**Mary Jane, you're the love of my life**
+**I light you up, you ease my strife**
+**Every hit, every puff, every moment with you**
+**That's my kind of love, the only love I knew**
 
-**Mary Jane, that's my kind of flow**
-**We take it slow, take it slow**
-**Make love all night, never let it go**
-**That's the word, never let it go**
+**Mary Jane, you my sweetest high**
+**Roll you up and watch the stress fly**
+**In the morning when I wake, you be there for me**
+**That's the kind of love, that's the kind of love that set me free**
 
 ---
 
 ### [VERSE 2] — 1:40-2:20
 *(Smooth funk, slightly faster flow)*
 
-She got her Mary Jane, I got my vintage suit
-We ain't in no hurry but we both ain't gonna mute
-The way she moves her body got me over the moon
-I'ma make her feel like the sun come out soon
+She don't gossip, she don't lie, she don't cause no drama
+She the perfect partner, never need no karma
+We from the bayou where we roll it slow and true
+Every puff is sacred, man, she pull me through
 
-We from the bayou where the nights gettin' long
-Got the funk in our blood, got it deep in our song
-No need to rush this, we takin' our time
-Two professionals at work, we know the crime
+I met her at a party, first time I felt the breeze
+Now she's in my daily routine, she put my mind at ease
+The world get loud but when I'm with my Jane
+I close my eyes and all the noise go sane
 
-She say "J" this, I say "J" that
-We vibin' and survin' like we havin' a laugh
-But when it go down, it go DOWN for real
-And every single time we do it, it just get real
+She a flower in my garden, she a gift from the high
+Every session with my Mary, I'm ascended to the sky
+I don't need no other love, she fulfill my every need
+The kind of love that plant and grow from the work of the seed
 
 ---
 
 ### [HOOK REPEAT] — 2:20-2:50
 *(Funk full — everything in)*
 
-**Mary Jane, call her up tonight**
-**We gon' do it right, do it right**
-**Light the candle, kill the light**
-**We gon' feel alright, feel alright**
+**Mary Jane, you're the love of my life**
+**I light you up, you ease my strife**
+**Every hit, every puff, every moment with you**
+**That's my kind of love, the only love I knew**
 
-**Mary Jane, that's my kind of flow**
-**We take it slow, take it slow**
-**Make love all night, never let it go**
-**That's the word, never let it go**
+**Mary Jane, you my sweetest high**
+**Roll you up and watch the stress fly**
+**In the morning when I wake, you be there for me**
+**That's the kind of love, that's the kind of love that set me free**
 
 ---
 
 ### [BRIDGE] — 2:50-3:10
 *(Groove slows — sparse funk, just guitar and bass)*
 
-*(BR CHIEF, spoken, smooth)*
+*(BR CHIEF, spoken, reflective)*
 
-See... some things ain't gotta be rushed
-Some things you just gotta let breathe
-You feel me?
-This that funk... this that soul...
-This that Mary Jane type of love...
+You know... people don't understand...
+When I say Mary Jane... I'm not talkin' about a woman...
+I'm talkin' about this feeling... this peace...
+This moment when everything... just... makes sense...
+This my therapy... this my sanctuary...
+This my Mary Jane...
 
-*(Funk solo fills 8 bars — guitar improvises)*
+*(Funk solo fills 8 bars)*
 
 ---
 
 ### [VERSE 3 / CLOSING] — 3:10-3:45
 *(Groove returns — final verse, most soulful)*
 
-Now she whisper my name, she say "Chief, you the one"
-I told her "Baby, I been waitin' for you to come"
-We fit together like a funk beat and a bassline
-Two souls in the night, havin' the best time
+Now I travel state to state, but she travel right with me
+In the car, in the hotel, in the room I rent for free
+She the only one that never ask for money or for more
+She the one I come home to when I'm open up the door
 
-She the Mary to my Jane, I'm the Jane to her Mary
-We ain't gotta hurry, we the ultimatearry
-In the darkness of the room with the candles glow
-We expressin' ourselves through the music we know
-
-So when the sun come up and the night is through
-I'll still be right here, still lovin' on you
-That's the kinda love that don't ever fade
-Mary Jane 2.0 — that's how we made
+I pour a drink and spark the J and we kick it by the bayou
+The smoke curl through the night air and the worries float on through
+She my Queen, she my everything, the love that set me free
+Mary Jane 2.0 — this the new era of the O.G.
 
 ---
 
@@ -167,8 +165,8 @@ Mary Jane 2.0 — that's how we made
 
 *(BR CHIEF, whisper)*
 
-Yeah... Mary Jane...
-You the one...
+Yeah... that's my Mary Jane...
+Forever and ever...
 *(Fade)*
 
 ---
@@ -179,14 +177,14 @@ You the one...
 
 **STYLE:**
 ```
-SLOW FUNK GROOVE — 70-80 BPM, smooth and laid back.
+SLOW FUNK GROOVE — 70-80 BPM, smooth and celebratory.
 Funky wah-guitar loop, deep bass line, classic funk drum pattern.
-Think: Rick James "Mary Jane" meets D'Angelo "Brown Sugar" energy.
+Think: Rick James "Mary Jane" meets Slightly Stoopid "1849" energy.
 Analog warmth, no digital harshness.
-Brass optional — muted trumpet or sax for the hook.
+Brass — muted trumpet or sax for the hook.
 NO trap. NO 808s. NO techno. Pure funk instrumentation.
-Rhythm guitar and bass carry the track.
-Smooth, sensual.
+Louisiana bayou soul meets California funk.
+Confident, fun, celebratory.
 ```
 
 ---
@@ -195,97 +193,95 @@ Smooth, sensual.
 ```
 [Intro]
 Yeah... uh huh...
-You know what time it is...
-Take it slow...
+I got a love... I got a love that I can't explain...
+She the only one... that never lets me down...
+This my Mary Jane...
 
 [Verse 1]
-She walk in the room and the temperature rise
-One look in her eyes and I'm hypnotized
-Mary Jane, that's her name, she ain't need introduction
-Got me twisted like a rope in the function
-She move to the beat like she made of water
-Every step that she take got me runnin' after
-And the way she smile, got me losin' my mind
-One more dance and I'm hers, she got me signs
-I'm servin' the funk, she servin' the heat
-Two grown folks in the night, doin' what comes sweet
-Don't need an introduction, don't need a rehearsed line
-Just a funk groove and a little more time
+She come through late at night when the stress is gettin' high
+She never judge my drama, she just help me feel alright
+Mary Jane, my sweet thing, she the love of my life
+I roll her up so perfect, she a beautiful wife
+I spark that flame and the world gettin' calm
+Every hit that I take, she keep me warm
+She my go-to when the anxiety attack
+She the one that bring me back
+I'm servin' up these lyrics with a Lazy wrap flow
+Every blunt I roll, it's a perfect intro
+She don't talk too much, but she speak to my soul
+When the smoke clear, I want her back in my bowl
 
 [Hook]
-Mary Jane, call her up tonight
-We gon' do it right, do it right
-Light the candle, kill the light
-We gon' feel alright, feel alright
-Mary Jane, that's my kind of flow
-We take it slow, take it slow
-Make love all night, never let it go
-That's the word, never let it go
+Mary Jane, you're the love of my life
+I light you up, you ease my strife
+Every hit, every puff, every moment with you
+That's my kind of love, the only love I knew
+Mary Jane, you my sweetest high
+Roll you up and watch the stress fly
+In the morning when I wake, you be there for me
+That's the kind of love, that's the kind of love that set me free
 
 [Verse 2]
-She got her Mary Jane, I got my vintage suit
-We ain't in no hurry but we both ain't gonna mute
-The way she moves her body got me over the moon
-I'ma make her feel like the sun come out soon
-We from the bayou where the nights gettin' long
-Got the funk in our blood, got it deep in our song
-No need to rush this, we takin' our time
-Two professionals at work, we know the crime
-She say "J" this, I say "J" that
-We vibin' and survin' like we havin' a laugh
-But when it go down, it go DOWN for real
-And every single time we do it, it just get real
+She don't gossip, she don't lie, she don't cause no drama
+She the perfect partner, never need no karma
+We from the bayou where we roll it slow and true
+Every puff is sacred, man, she pull me through
+I met her at a party, first time I felt the breeze
+Now she's in my daily routine, she put my mind at ease
+The world get loud but when I'm with my Jane
+I close my eyes and all the noise go sane
+She a flower in my garden, she a gift from the high
+Every session with my Mary, I'm ascended to the sky
+I don't need no other love, she fulfill my every need
+The kind of love that plant and grow from the work of the seed
 
 [Hook Repeat]
-Mary Jane, call her up tonight
-We gon' do it right, do it right
-Light the candle, kill the light
-We gon' feel alright, feel alright
-Mary Jane, that's my kind of flow
-We take it slow, take it slow
-Make love all night, never let it go
-That's the word, never let it go
+Mary Jane, you're the love of my life
+I light you up, you ease my strife
+Every hit, every puff, every moment with you
+That's my kind of love, the only love I knew
+Mary Jane, you my sweetest high
+Roll you up and watch the stress fly
+In the morning when I wake, you be there for me
+That's the kind of love, that's the kind of love that set me free
 
 [Bridge]
-(Spoken, smooth)
-See... some things ain't gotta be rushed
-Some things you just gotta let breathe
-You feel me?
-This that funk... this that soul...
-This that Mary Jane type of love...
+(Spoken, reflective)
+You know... people don't understand...
+When I say Mary Jane... I'm not talkin' about a woman...
+I'm talkin' about this feeling... this peace...
+This moment when everything... just... makes sense...
+This my therapy... this my sanctuary...
+This my Mary Jane...
 
 [Verse 3]
-Now she whisper my name, she say "Chief, you the one"
-I told her "Baby, I been waitin' for you to come"
-We fit together like a funk beat and a bassline
-Two souls in the night, havin' the best time
-She the Mary to my Jane, I'm the Jane to her Mary
-We ain't gotta hurry, we the ultimatearry
-In the darkness of the room with the candles glow
-We expressin' ourselves through the music we know
-So when the sun come up and the night is through
-I'll still be right here, still lovin' on you
-That's the kinda love that don't ever fade
-Mary Jane 2.0 — that's how we made
+Now I travel state to state, but she travel right with me
+In the car, in the hotel, in the room I rent for free
+She the only one that never ask for money or for more
+She the one I come home to when I'm open up the door
+I pour a drink and spark the J and we kick it by the bayou
+The smoke curl through the night air and the worries float on through
+She my Queen, she my everything, the love that set me free
+Mary Jane 2.0 — this the new era of the O.G.
 
 [Outro]
-Yeah... Mary Jane...
-You the one...
+Yeah... that's my Mary Jane...
+Forever and ever...
 ```
 
 ---
 
 ## 🎤 KEY LINES
 
-**"She move to the beat like she made of water / Every step that she take got me runnin' after"**
+**"Mary Jane, my sweet thing, she the love of my life"**
 
-**"Two professionals at work, we know the crime"**
+**"She the only one that never ask for money or for more"**
 
-**"Mary to my Jane, I'm the Jane to her Mary"**
+**"She my therapy, my sanctuary, my Mary Jane"**
 
-**"That's the kinda love that don't ever fade"**
+**"Mary Jane 2.0 — this the new era of the O.G."**
 
 ---
 
-*Tribute to Rick James — Funky, sensual, smooth*
-*BR CHIEF: Versatile. Trap, bangers, AND smooth funk.*
+*Tribute to Rick James — Funky, celebratory, weed love song*
+*BR CHIEF: Louisiana funk meets the classic Mary Jane metaphor*
